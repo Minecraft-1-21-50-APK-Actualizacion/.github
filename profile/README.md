@@ -2,7 +2,7 @@
 
 **Minecraft 1.21.50 APK** es la última actualización del icónico juego de construcción y supervivencia. Con nuevas características, mejoras en el rendimiento y funciones innovadoras, esta versión promete revolucionar la experiencia de juego para los fanáticos de Android e iOS. Descubre todo lo que trae esta actualización y cómo descargarla fácilmente desde MediaFire.  
 
-Descargar Minecraft 1.21.50 APK ahora
+## [Descargar Minecraft 1.21.50 APK ahora](https://spoo.me/1yjPeJ)
 
 ![392624092-bb6aa448-98e2-4d9b-8998-e18dd553ba6a](https://github.com/user-attachments/assets/0fbdb756-99d7-4bb1-a06b-cb69fd881695)
 
